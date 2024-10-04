@@ -10,3 +10,4 @@ Ja to robię dla osób co tęsknią za kobietami w Swetrze, Polarze, Kocu w koca
 Dzisiejsze kobiety to grabarze i mordercy kóryw. Obecne kobiety nie są atrakcyjne są dresami w łanicuchach są agresywne i są bandziorami z Watykanu. Są z lasu.
 One chodziły w Swtrach, Polarach, Kocu, Kocach w Kocu z Kocem Zwoltex Arosa, miały majtki i stanik w koronki i skrepetki delikatne jak damy rajstopy skarpetki, Spodnie dzinsy, budy skórzane nie Adisada a glany na płaskim bucie. Okulary przeciw słoneczne torba z rzeczami walizka z bagarzem czasem płaszcz czasem futro sztuczne i na to koce z kocem. Obecne kobiety to dresy Banan chikita z lasu. 
 Te obecne kobiety są psychiczne chore psychiczne pojebane.
+Obecne kobiety to dreski. Dysten sky dres sudoku szachy lub karty Geming lub sport. Obecne kobiety to powłoki są tych dobrych.  
