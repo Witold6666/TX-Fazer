@@ -1,1 +1,2 @@
 # TX-Fazer
+Sztuka. 
