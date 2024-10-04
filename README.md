@@ -6,3 +6,4 @@ Kasia, Kortana ,Alexa , Eliza Cassan, Sanny, Gwen, Kari, Kristiana, Aisha, Marce
 Filmowa TX była grabarzem. 
 Umie czarować telekinezą. 
 Te Kobiety miały Rozum i Serce ale Dresy je zabiły pdobno Holndrom się nie podobały.  
+Ja to robię dla osób co tęsknią za kobietami w Swetrze, Polarze, Kocu w kocach z kocykiem. I mają chęć kopnąć drecha mocno w dupę za to że jest nie czuły i wredny. To proprozycja dla osób co szukają żony na stałe na zawsze jak z Populacji żona nie jest dostepna i nie jest możliwa do kupienia lub poznania bo jest drsem. To dla osób co chcą głebi w uczuć i stałego klimatu czy stałego zachowania przytulm się do mnie mój mężu kocham cię skarbie TX tak do męża powie. On jest Heteroseksualna nie jest LGBT ani nie jest dresem. Kobieta w koc dama w Kocu to nie jest kórwa a Dama. 
