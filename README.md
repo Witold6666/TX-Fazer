@@ -16,3 +16,4 @@ Kobiety w Sweter, Polar, Koc, Koce w koc z kocem, Butami skórzanymi GLANY ale b
 Obecne kobiety to zid, chrześcijanin i jechowy. 
 Obecne kobiety są z lasu i sportu są z lasu i sportu są z lasu po sporcie. 
 Tamte kobiety to nie były mordy Holendrów Holandi Niemców z Niemczech czy zidów żydów z Izraela nie były też chcrześcijanami i nie były jechowymi z taczkom czy cepem i mordą nie miały mordy nie doiły wiadrekiem jak wieśki. Były piękne. Nie były w żadnej subkulturze. Jak ktoś pyta były normalne Hetereskeuslane bez gemingu sudoku kart i szachów. Holandia, Izrael i Niemcy je wytępiły.  Obecne kobiety to są z lasu i sportu mleko łaciate miliatary 112 kwiaty i pałki paraliztaory i gaz pieprzowy bronie ta ma tylko fazer dla spzanu.   
+Ta co dałem na GitHub to dama jest rozum i serce.
