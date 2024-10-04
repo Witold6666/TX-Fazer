@@ -11,3 +11,4 @@ Dzisiejsze kobiety to grabarze i mordercy kóryw. Obecne kobiety nie są atrakcy
 One chodziły w Swtrach, Polarach, Kocu, Kocach w Kocu z Kocem Zwoltex Arosa, miały majtki i stanik w koronki i skrepetki delikatne jak damy rajstopy skarpetki, Spodnie dzinsy, budy skórzane nie Adisada a glany na płaskim bucie. Okulary przeciw słoneczne torba z rzeczami walizka z bagarzem czasem płaszcz czasem futro sztuczne i na to koce z kocem. Obecne kobiety to dresy Banan chikita z lasu. 
 Te obecne kobiety są psychiczne chore psychiczne pojebane.
 Obecne kobiety to dreski. Dysten sky dres sudoku szachy lub karty Geming lub sport. Obecne kobiety to powłoki są tych dobrych.  
+Te kobiety zniszczyła Holandia i Izrael i Niemcy i kultura sportu z Lasu i z 112. Te kobiety były widziane do roku 1900 r. Po tem W 1910 do 1960 Były widziane tylko kobiety pół dreski Lile. Po roku 1960 r. Były widziane tylko do przyszłości do teraz i dalej w przyszłość psychiczne kobiety dreski. 
