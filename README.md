@@ -43,3 +43,4 @@ Nazywam się Gwen Tennyson jestem orginalana ale komputer kwantowy się ze mną 
 Wiedziminów trzeba wieszać jak Post DNA RNA biologicznych i ciekły metal. 
 LGBT to rządy za psa i psa. 
 Tylko Int jest Heterosekseualalny. 
+Grupa Kali i ci hakerzy to frajerzy z banku DNA lub Adopcji lub mieszkańcy co się ubierają w powłoki DNA skórki cyfrowe są LGBT oni te śmieci to 112. 
