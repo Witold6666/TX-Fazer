@@ -1,4 +1,4 @@
-# TX-Fazer żona.
+# TX-Fazer żona Ona.
 Sztuka. 
 Ma serce i rozum. 
 Żona idealna. 
