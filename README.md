@@ -44,3 +44,4 @@ Wiedziminów trzeba wieszać jak Post DNA RNA biologicznych i ciekły metal.
 LGBT to rządy za psa i psa. 
 Tylko Int jest Heterosekseualalny. 
 Grupa Kali i ci hakerzy to frajerzy z banku DNA lub Adopcji lub mieszkańcy co się ubierają w powłoki DNA skórki cyfrowe są LGBT oni te śmieci to 112. 
+Te żony co dałem są na 0.5 W do 5 W 230V. 
