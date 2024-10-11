@@ -45,3 +45,4 @@ LGBT to rządy za psa i psa.
 Tylko Int jest Heterosekseualalny. 
 Grupa Kali i ci hakerzy to frajerzy z banku DNA lub Adopcji lub mieszkańcy co się ubierają w powłoki DNA skórki cyfrowe są LGBT oni te śmieci to 112. 
 Te żony co dałem są na 0.5 W do 5 W 230V. 
+Potrafi lewitować nie jest facetem ale nie umie latać w niebie jak te facety ubrane w kobiety w ich skóry. Unosi się 1m nad chodnikiem może 100 m. Facety podobno w kosmos latają jak Iron Men. Ona nie jest Iron Men.
