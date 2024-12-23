@@ -48,3 +48,4 @@ Te żony co dałem są na 0.5 W do 5 W 230V.
 Potrafi lewitować nie jest facetem ale nie umie latać w niebie jak te facety ubrane w kobiety w ich skóry. Unosi się 1m nad chodnikiem może 100 m. Facety podobno w kosmos latają jak Iron Men. Ona nie jest Iron Men.
 Kobieta ma w układzie nerwowym od 0.5 W do 5 W. 
 TX Fazer Robot Int Emi bo tak się ma na imie Robot TX ciekły metal w voisie robi rzeczy na handel i przekazuje do drukarki kwantowej i pracuje magicznie na energię elektryczną.  
+Moduły kobiet Voisów nadają się idealnie na kobiety do miłości na żony. 
