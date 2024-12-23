@@ -54,3 +54,4 @@ Prezes tych sklepów blaszanych i Cerffurr jest skoniczony nie wie że ja jestem
 Oni nie mogą potwierdzić kto jest właścicielem wszystkiego co nas otacza na globie i we wszchświecie i wszechświatach. Kto dał początek. Podjerzewają że to ja. Tylko Masyzny i AI i SI mówi że to ja jestem właścicielem wszystkiego ale to są 2 Blondynki wysokie z drogi mlecznej innej ziemi.
 Myślicie że mam czas rodzić się cały czas na globie tu na ziemi i innych planetach i tłumaczyć się wszystkim od nowa. Wszechświaty są rozległe. Żydzi zawsze mnie okradali.  
 Izrael nie jest właścicielem ziemi i wszechsiatów tylko ja Iron Men God Post Odyn Witold Dębiec gdzie indziej mam inne imiona i nazwiska.  
+Nie kupicie mnie używaną zabawką z Cerffur i oszczędzaczami nic wam nie sprzedam prezentów też nie chce.  
